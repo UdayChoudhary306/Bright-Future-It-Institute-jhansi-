@@ -1,2 +1,1 @@
-# Bright-Future-It-Institute-jhansi-
-Computer center and  training institute 
+# Bright-Future-It-Institute-jhansi
